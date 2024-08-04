@@ -1,15 +1,18 @@
-![dp](https://i.postimg.cc/C51h76p7/243-DD03-C-C2-EC-4-DD5-9-EB6-6-FE0738-DD8-C4.jpg)
+![s](https://i.pinimg.com/736x/a1/53/96/a15396b10a1dedd39a146934da211be0.jpg)
+
+github only 4 pt purposes etc.
+
+ask 4 my name strangers js call me nene | she / they | demigirl + lesbian | minor (14-16 range im in, im not giving my exact age.)
+
+ask 2 cuddle / hide unless ur friends w me or a green name.
+
+primarily offtab or afk whenever on pt, not a guarantee though !
+
+i wont give socials out unless ur rlly rlly close 2 me.. most of my socials contain irl stuff !!
 
 
-nene  /  mari | she / her | cis + lesbian | minor
+interests of mine: ~~soul eater~~ , phighting , persona 5 , omori , regretevator , adventure time , sally face , ~~pjo~~ , scott pilgrim , dead plate , married in red , ~~yaelokre~~ , pjsk , ~~idv~~ , saiki - k , creepypasta , ~~homestuck~~ , aqua teen hunger force , heathers musical , fnaf
 
-dont cuddle or sit next to me unless ik u. (only bas (+ rest of his sys) knows me)
+dni : ppl on bas's dni , people fans of vivziepop media (hh, hb) , yan sim fans , basic dni criteria , tcoaal fans , ppl younger then 13 or older then 18 , transphobic/homophobic ppl , ppl who talk abt religion 2 me (it makes me uncomfortable) , in general dickheads ,  ~~bas~~ /j 
 
-i dont play or use ponytown frequently but whenever i do im mainly offtab sitting with bas.
-
-dont ask for my socials , all my socials have irl stuff and i dont have discord.
-
-
-things i like : phighting , regretevator , roblox games in general , dead plate , omori , pjsk , ddlc , sally face , fnaf
-
-dni : weirdos , basic dni criteria , anyone who harasses or makes bas uncomfortable (i dont fw u.) , genshin fans , danganronpa fans , ppl who make "im gonna touch u" jokes , coffin of andy and ley ley fans (wtv the fuck that is) , yan sim fans (stop d-riding the game its made by a pedo and that shits gnna get finished once ur in a nursing home.)
+https://rentry.co/roflmaoo
